@@ -1,0 +1,1 @@
+Attach Ninety_Second_Door_Week06_Visor_Clip.pdf to the existing Ninety-Second Door product. Do not create a new Whop listing. Plan plan_aXIUeRQymcxc3 stays $15/30 days. Enable 30% global affiliates only after the PDF is in the vault.
